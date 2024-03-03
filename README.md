@@ -25,6 +25,7 @@ Let’s Build This Together!
 Your involvement could shape the future of how we interact with AI privately and personally. If you’re ready to contribute to a project that values user privacy, empathetic AI, and open collaboration, reach out. Together, we can create a space where technology supports personal growth and reflection, securely and privately.
 
 writen with ai no by ai,
+
 ffr.world
 
 
